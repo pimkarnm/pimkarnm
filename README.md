@@ -1,6 +1,6 @@
 # Pimkarn (Min) Mekpruksawong
 
-I am originally from Bangkok, Thailand, and currently live in San Francisco, CA. I graduated with two master's degrees including  Master of Business Analytics and MBA from Hult International Business School. Previously I studied Bachelor's degree in accounting. 
+I am originally from Bangkok, Thailand, and currently live in San Francisco, CA. I graduated with two master's degrees including  Master of Business Analytics and MBA from Hult International Business School. Previously, I graduated Bachelor's degree in accounting from Chulalongkorn University.
 
 I have 4+ years of experience in corporate accounting, focusing on Chemicals business. Working in the accounting shared services model, I was part of the general ledger process in which responsible for financial closing, financial reporting, and corporate income tax as well as working with cross-functional teams to drive business decisions. Previously an external auditor at EY for 1.5 years where I performed financial statements audits and test of controls for public, private, and pre-IPO clients.
 
