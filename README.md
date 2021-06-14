@@ -12,7 +12,6 @@ Random facts about me:
 - Enjoy spending time outdoor and traveling
 - Love hanging out with friends and meet new people
 
-
 Feel free to reach out to me via [LinkedIn](https://www.linkedin.com/in/pimkarnm/) if you need anything or just to say hi! 
 
 Thank you
